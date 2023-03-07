@@ -1,1 +1,0 @@
-# sergiy-olga.githab.io
